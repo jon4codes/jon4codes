@@ -1,4 +1,5 @@
 Hola, soy Jonathan Limas (jonacodes)
+
 Soy un desarrollador Fullstack que se apoya en su pasión por aprender y seguir creciendo tanto profesional como personalmente.
 Me gusta estar actualizado con las últimas tendencias. 
 Destaco por ser completamente autodidacta, gran atención al detalle, capacidad de adaptación y facilidad para trabajar en equipo.
