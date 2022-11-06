@@ -12,6 +12,6 @@ Puedes seguirme en los siguientes sitios para conocer más de mí, mantenerte en
 - Website: https://www.jonacodes.com
 - Redes Sociales :https://www.jonacodes.com/mobile
 
-Por cierto, me encuentro más activo en Instagram. Si deseas contactarme para proyectos, por Instagram te responderé en el tiempo menor posible.
+Por cierto, me encuentro más activo en Instagram. Si deseas contactarme para proyectos, por Instagram te responderé en el menor tiempo posible.
 
 ¡Saludos Cracks!
