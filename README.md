@@ -7,7 +7,7 @@ Estas cualidades las aprovecho para entregar los mejores resultados posibles.
 
 Puedes seguirme en los siguientes sitios para conocer más de mí, mantenerte en contacto conmigo y ser el primero en ver todas las novedades que vaya lanzando.
 - Website: https://www.jonacodes.com
-- Redes Sociales: https://www.jonacodes.com/mobile
+- Redes Sociales: https://www.jonacodes.com/links
 
 Por cierto, me encuentro más activo en Instagram. Si deseas contactarme para proyectos, por Instagram te responderé en el menor tiempo posible.
 
